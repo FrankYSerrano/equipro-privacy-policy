@@ -51,4 +51,4 @@ Podemos actualizar esta Política de Privacidad de vez en cuando. Cualquier camb
 7. Contacto
 Si tienes alguna pregunta sobre esta Política de Privacidad, por favor, ponte en contacto con nosotros en: equiproapp@gmail.com
 
-Llevamos la administración deportiva al siguiente nivel. Nuestra solución ha sido diseñada y perfeccionada por quienes mejor conocen el campo: entrenadores y administradores líderes en la industria. Optimiza tus procesos con una herramienta creada por expertos para expert
+Llevamos la administración deportiva al siguiente nivel. Nuestra solución ha sido diseñada y perfeccionada por quienes mejor conocen el campo: entrenadores y administradores líderes en la industria. Optimiza tus procesos con una herramienta creada por expertos para expertos.

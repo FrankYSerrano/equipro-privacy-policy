@@ -49,11 +49,6 @@ Dado el diseño de nuestra aplicación, la gestión de tu información personal 
 Podemos actualizar esta Política de Privacidad de vez en cuando. Cualquier cambio se publicará en esta página, y la fecha de entrada en vigor se actualizará. Te recomendamos revisar esta política periódicamente para estar al tanto de cualquier cambio. El uso continuado de la aplicación después de la publicación de los camb constituye tu aceptación de la nueva política.
 
 7. Contacto
-Si tienes alguna pregunta sobre esta Política de Privacidad, por favor, ponte en contacto con nosotros en:
-soporte@fichajes.cl
+Si tienes alguna pregunta sobre esta Política de Privacidad, por favor, ponte en contacto con nosotros en: equiproapp@gmail.com
 
 Llevamos la administración deportiva al siguiente nivel. Nuestra solución ha sido diseñada y perfeccionada por quienes mejor conocen el campo: entrenadores y administradores líderes en la industria. Optimiza tus procesos con una herramienta creada por expertos para expert
-
-
-
-
